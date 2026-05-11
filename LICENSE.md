@@ -1,4 +1,4 @@
-# 
+# new DaVinci Resolve for macOS Preset | subtitle-generator + sound-design offers the most advanced DaVinci Resolve for macOS preset, with subtitle-generator and sound-design. Ideal
 
 
 
